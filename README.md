@@ -1,4 +1,4 @@
-### Hi there 👋
+### Yoo... I'm Shin
 
 <!--
 **Shiraskull/Shiraskull** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
